@@ -1,7 +1,7 @@
-## TANK YOU !
+## THANK YOU !
 
 We appreciate your support of our work in this manner.
-Tank you for your contribution.
+Thank you for your contribution.
 
 sincerly
 
